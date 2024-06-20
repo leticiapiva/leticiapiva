@@ -9,4 +9,4 @@ me chamo Letícia
 
 leticiapiva16@gmail.com
 
-![](https://media.tenor.com/eZbarzKIwdIAAAAM/cat-cat-stare.gif)
+![](https://media.tenor.com/Z5x6xrH6_AQAAAAM/cat-kissing.gif)
